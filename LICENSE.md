@@ -1,4 +1,4 @@
-#  
+#  hidden rivals Scripts is the best rivals Script, featuring no cooldown and anti-ban. Safe and powerful for all your needs.
 
 
 
